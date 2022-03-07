@@ -1,10 +1,8 @@
 - 👋 Hi, I’m @kaigosswn Thiền Nguyễn Thành Hưng 
 - 👀TÔI HỌC TẠI THCS GIANG ĐÔNG-KỲ ANH-HÀ TĨNH
 - 🌱TÔI ĐAM MÊ LẬP TRÌNH(JAVA,PYTHON,..)
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ ❤13/4/2008❤
+- 📫FB:https://www.facebook.com/profile.php?id=100075799479715
+kaigosswn✨Thắng không kiêu bại không nản!
+Chỉ có thành công mới định nghĩa bạn là ai!
 
-<!---
-kaigosswn/kaigosswn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
