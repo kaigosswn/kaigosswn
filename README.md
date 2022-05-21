@@ -3,8 +3,11 @@
 - 🌱TÔI ĐAM MÊ LẬP TRÌNH(JAVA,PYTHON,..)
 - 💞️ ❤13/4/2008❤
 - 📫FB:https://www.facebook.com/profile.php?id=100075799479715
-kaigosswn✨Thắng không kiêu bại không nản!
-Chỉ có thành công mới định nghĩa bạn là ai!
-TÔI LÀ NGƯỜI THAM VỌNG,HAM MUỐN QUYỀN LỰC.
-THIỀN ĐỊNH
-ĐỌC SÁCH UỐNG TRÀ
+-kaigosswn ❤ Olymp
+✨Thắng không kiêu bại không nản!
+𝓒𝓱𝓲 𝓬𝓸 𝓽𝓱𝓪𝓷𝓱 𝓬𝓸𝓷𝓰 𝓶𝓸𝓲 𝓭𝓲𝓷𝓱 𝓷𝓰𝓱𝓲𝓪 𝓫𝓪𝓷 𝓵𝓪 𝓪𝓲  🦅
+-Tham Vọng
+-THIỀN ĐỊNH
+-ĐỌC SÁCH UỐNG TRÀ
+-Tượng Kỳ
+-Phong Lâm Hỏa Sơn
